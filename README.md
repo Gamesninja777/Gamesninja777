@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Programmer
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me maybe my YT Channel
-- 😄 Pronouns: of course he/her
+- 😄 Pronouns: of course he/him
 - ⚡ Fun fact: i am stupid
